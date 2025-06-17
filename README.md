@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **livingstone5405@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/137WScrlZxYLPW8cdnzVwgdYOWguygKY6?usp=drive_link](https://drive.google.com/drive/folders/137WScrlZxYLPW8cdnzVwgdYOWguygKY6?usp=drive_link)
+- 📄 Know about my experiences [[https://drive.google.com/drive/folders/137WScrlZxYLPW8cdnzVwgdYOWguygKY6?usp=drive_link](https://drive.google.com/drive/folders/137WScrlZxYLPW8cdnzVwgdYOWguygKY6?usp=sharing)](https://drive.google.com/drive/folders/137WScrlZxYLPW8cdnzVwgdYOWguygKY6?usp=drive_link)
 
 - ⚡ Fun fact **I use both logic and design to solve problems—and still manage to make people laugh!**
 
